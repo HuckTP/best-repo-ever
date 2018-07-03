@@ -1,3 +1,3 @@
 # best-repo-ever
 
-Tuesday text update. 1033
+TUESDAY text update. 1033
